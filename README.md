@@ -1,4 +1,4 @@
-# Yuji's page
+# Yuji YAMAZAKI's page
 ![Typing SVG](https://readme-typing-svg.herokuapp.com?size=40&center=true&vCenter=true&width=1000&height=100&lines=HELLO+I+AM+yuji-yy17.;THANK+YOU+FOR+COMING.)
 
 ## About my activity
